@@ -6,4 +6,7 @@
 
 [Linkedin](https://www.linkedin.com/in/adrianosantoni/)
 
-[Some thoughts on QWACs after entry into force of eiDAS2 regulation](https://www.clioedu.it/documenti/eventi-live-ondemand/rivista-elettronica/Rivista-elettronica-4_2024.pdf)
+[Blogspot](https://pki-meditations.blogspot.com/)
+
+#### Feature articles
+* [Some thoughts on QWACs after entry into force of eiDAS2 regulation](https://www.clioedu.it/documenti/eventi-live-ondemand/rivista-elettronica/Rivista-elettronica-4_2024.pdf)
